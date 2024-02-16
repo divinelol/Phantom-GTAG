@@ -4,5 +4,7 @@ Yes! But If You do Credit Me Or just send me a message @armdot on discord
 As Said Above @armdot on discord
 # Disclamer
 i am not responcible for any/all bans using this. 
+# Credits
+Zenon
 
 thank you bye! <3
