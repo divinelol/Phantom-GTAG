@@ -5,4 +5,4 @@ As Said Above @armdot on discord
 # Disclamer
 i am not responcible for any/all bans using this. 
 # Credits
-Zenon
+II
